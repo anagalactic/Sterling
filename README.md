@@ -1,2 +1,2 @@
 # Sterling
-22-Nov Æ • 
+# 22-Nov Æ • 
